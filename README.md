@@ -1,1 +1,1 @@
-# Lossfunk_Ressearch_project
+# Lossfunk_Research_project
